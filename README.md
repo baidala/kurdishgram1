@@ -1,0 +1,1 @@
+# kurdishgram1
